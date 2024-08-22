@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @carettamarie
 - 👀 I’m interested in tree seedling survival
 - 🌱 I’m currently learning about soil amendments and planting methods
-- - 💞️ I’m looking to collaborate on tree seedling mortality rates
+- 💞️ I’m looking to collaborate on tree seedling mortality rates
 - 📫 How to reach me: marie.lambropoulos@boku.ac.at
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I know a lot about sea turtles
